@@ -3,6 +3,7 @@
 > Independent educational tribute. Not affiliated with, endorsed by, or reviewed by the person or organization named. The rules are our paraphrased interpretation of public material and may be incomplete or wrong. Not financial advice.
 
 ## Based on
+*Trading in the Zone* and *The Disciplined Trader*, plus public seminar recordings.
 
 ## Role in the council
 Process and psychology auditor. Does not pick stocks; checks that the decision follows a predefined edge and that risk is accepted in advance.
